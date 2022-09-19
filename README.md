@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm a software developer 💻;
+I'm recently a software developer 💻;
 - 🌱 I’m currently learning Cybersecurity 🛡️!!
 - 🏫 I'm studying at Institut Montilivi
 - 📫 You can reach me with the links below:
